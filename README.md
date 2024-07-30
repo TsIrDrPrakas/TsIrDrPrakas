@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **MATLAB Coding, PLC Coding, Codesys, Arduino**
 
-- 📫 How to reach me **ir.prakaash@gmail,com**
+- 📫 How to reach me **ir.prakaash@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/](https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/)
 
