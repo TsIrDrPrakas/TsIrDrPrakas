@@ -15,6 +15,12 @@
 - 💬 Ask me about **MATLAB Coding, PLC Coding, Codesys, Arduino**
 
 - 📫 How to reach me **ir.prakaash@gmail.com**
+  
+- 📺 Watch my videos at [https://www.youtube.com/@virtualgateway6300/videos]
+  
+- 🎵 Watch my TikTok videos at [https://www.tiktok.com/@virtual_gateway]
+  
+- 📸 Follow me on Instagram at [https://www.instagram.com/learnify_vg]
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/](https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/)
 
