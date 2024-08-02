@@ -23,8 +23,10 @@
 - 📸 Follow me on Instagram at [https://www.instagram.com/learnify_vg]
 
 - 🎓 Check out my Google Scholar profile at [https://scholar.google.com/citations?user=AEYafp0AAAAJ&hl=en]
+  
+- 🤗 Please visit my Hugging Face profile at [https://huggingface.co/IrTsDrPrakas]
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/](https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/ir-ts-dr-prakas-gopal-samy-92b98796/]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
